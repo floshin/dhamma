@@ -70,6 +70,8 @@ God is immanent and transcendent. Brahman is neither immanent nor transcendent?
 
 
 
+most quotes from:
+* Vinoba Bhave in the 21st Century
 
 
 
