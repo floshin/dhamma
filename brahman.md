@@ -28,6 +28,15 @@ Externally it is saguna. Externally is is concrete.
 
 Saguna Brahma is "God". Nirguna Brahma is "Gottheit" (Meister Eckhart).  
 
+Vinoba:
+> "There is a cot of *nirguna* on which there is a bed of *saguna*, on which there is an idol with form. Such is the nature of Reality along with the cosmos."
+
+> The world is pervaded by Brahman. The world is *sphurti* of Brahman. The word "Sphurti" suggests energy and movement and thus the world is energy incarnate endowed with a capacity for constant change. There is no status quo in the world. Like the Buddhists, Vinoba also holds that the world is changing every moment and takes diverse novel forms. Due to its ability to change, there is newness, freshness and eternal continuity in the world.
+
+> This sphurti or urge is not something external to the *Brahman*, it is the same as sentient *Brahman* developing the form of sentience, Consciousness, self-consciousness and manifests itself in the human world, the social world.
+
+> If the Brahman and the world are to be coherent in growth, if the manifestations of *Brahman* are ever to grow then there cannot be a place for violence. Non-violence will automatically be an inherent constituent, a formative part of this. No less, it should be the nature of life or *Jivan*. 
+
 ---
 
 > Ishavasyam Idam Sarvam - The Universe is full of God (Isha).
