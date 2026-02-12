@@ -6,3 +6,8 @@
 ---
 
 * [The Essence of the Quran](https://ia802907.us.archive.org/1/items/in.ernet.dli.2015.349510/2015.349510.The-Essence.pdf) by Vinoba Bhave
+
+---
+
+Sarvodaya:
+* [Acharya Vinoba Bhave in 21st Century](https://www.hindisamay.com/e-content/vinoba-book/mobile/index.html#p=8)
