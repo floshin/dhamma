@@ -39,13 +39,37 @@ Vinoba:
 
 ---
 
-> Ishavasyam Idam Sarvam - The Universe is full of God (Isha).
-
----
-
 > Vinoba: "The Sun necessarily implies light, so *Satya* necessarily implies knowledge and where there is *Satya-jnana*, there cannot be grief. There is bound to be bliss. So *Brahman* is known as *Saccidananda*."
 
 > Vinoba: "He is the purest essence of the things of the world."
+
+
+## On God or from Brahman to Ishvara
+
+What Meister Eckhart calls Gott and the Gottheit beyond, in Vedanta is Ishvara and Brahman.
+
+Vinoba: "God is an inferential Brahman".
+
+> Brahman stands above this Ishvara and individual selves as a unifying Ultimate Reality. (...) God to him is one particular expression of *Brahman*, looked at from the human point of view.
+
+> God is the totality of attributes.
+> Mainly Truth (Satya), Love (Karuna?) and Compassion (Metta?).
+
+> The values cherished by human beings are embodied in God.
+> God is the embodiment of all wholesome, auspicious attributes. 
+
+> Vinoba: "Where there is the end of cause-effect cycle, beyond which nothing can be imagined, which is beyond animate and inanimate, yet everything is included in that, that alone is the ultimate cause or 'Only *Sat*' God.  
+
+(in this context, read the basic argument of Thomas von Aquin?)
+
+God is immanent and transcendent. Brahman is neither immanent nor transcendent?
+
+
+
+
+
+
+
 
 
 
