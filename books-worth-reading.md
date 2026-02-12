@@ -11,3 +11,8 @@
 
 Sarvodaya:
 * [Acharya Vinoba Bhave in 21st Century](https://www.hindisamay.com/e-content/vinoba-book/mobile/index.html#p=8)
+
+
+Vinoba Bhave:
+* Veda-chintana (Commentary on Vedic Verses), Hindi
+* 
