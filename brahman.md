@@ -32,8 +32,6 @@ Saguna Brahma is "God". Nirguna Brahma is "Gottheit" (Meister Eckhart).
 
 > Ishavasyam Idam Sarvam - The Universe is full of God (Isha).
 
-> Brahma Satyam. Jagat Sphurti. Jivanam Satya Shodanam.
-
 ---
 
 > Vinoba: "The Sun necessarily implies light, so *Satya* necessarily implies knowledge and where there is *Satya-jnana*, there cannot be grief. There is bound to be bliss. So *Brahman* is known as *Saccidananda*."
