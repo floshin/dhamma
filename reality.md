@@ -1,6 +1,6 @@
 # On Reality
 
-Real is was is what is realised.  
+Real is what is realised.  
 "Unreal" is what is (yet) unrealised.   
 
 Wirklich ist was sich in Verwirklichung befindet.   
