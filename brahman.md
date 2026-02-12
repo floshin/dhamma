@@ -28,8 +28,12 @@ Externally it is saguna. Externally is is concrete.
 
 Saguna Brahma is "God". Nirguna Brahma is "Gottheit" (Meister Eckhart).  
 
+Internally, Brahman may be static. Externally, Brahman is dynamic. 
+
 Vinoba:
 > "There is a cot of *nirguna* on which there is a bed of *saguna*, on which there is an idol with form. Such is the nature of Reality along with the cosmos."
+
+---
 
 > The world is pervaded by Brahman. The world is *sphurti* of Brahman. The word "Sphurti" suggests energy and movement and thus the world is energy incarnate endowed with a capacity for constant change. There is no status quo in the world. Like the Buddhists, Vinoba also holds that the world is changing every moment and takes diverse novel forms. Due to its ability to change, there is newness, freshness and eternal continuity in the world.
 
