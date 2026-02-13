@@ -36,6 +36,12 @@ One can reveal the craving and suffering it causes only by abandoning what cover
 > Anigha: "human existence is made for sensuality and reproduction. If you want liberation, you don't do what your birth is meant for."
 
 
+## Enduring the pressure
+
+> Anigha: Whoever practices that path well will eventually see for themselves that more painful and scorching than restraint is giving in to sensual desire; beings are simply too blinded by passion and ignorance to see this most of the time. Their perception is distorted.
+
+
+
 
 ## Effortless Right Conduct firmly established
 
