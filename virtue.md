@@ -16,6 +16,8 @@ One can reveal the craving and suffering it causes only by abandoning what cover
 
 → Virtue leads to contentment through the abandonment of needs.
 
+> Anigha: It is therefore not an exaggeration to say that the relationship between virtue and purified conduct and (right) samādhi is the same as that between being able to stand and being able to run. Doing the latter without having fulfilled the former is factually impossible, not just unlikely.
+
 > Anigha: you can only begin to develop this higher understanding (the Right View) if you have purified your virtue first.
 
 > Anigha: "(they) make compromises in their virtue and their awareness of uncomfortable truths"
