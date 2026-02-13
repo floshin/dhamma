@@ -15,6 +15,13 @@ in understanding this, one understands the dhamma and its point -- which is the 
 > Anigha: "(they) make compromises in their virtue and their awareness of uncomfortable truths"
 
 
+## Stream-Entry and Virtue
+
+https://www.reddit.com/r/HillsideHermitage/comments/1acfdj3/role_of_virtue_beyond_stream_entry/
+
+
+
+
 
 ## Yoniso Manasikara
 
