@@ -7,7 +7,9 @@ Wirklich ist was sich in Verwirklichung befindet.
 Unwirklich ist, was (noch) nicht verwirklicht ist.  
 
 Shankara: *Vivaratavâda*  
-Ramanuja: *Parinamavada*.  
+Ramanuja: *Parinamavada*  
+Buddha: *Ksanikavada*
+Vinoba: *Samanvada*
 
 Vinoba (paraphrased): The world is not *Vivarta* of Brahman, it is *Parinama* of Brahman.
 
