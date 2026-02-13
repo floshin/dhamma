@@ -12,6 +12,10 @@ One can reveal the craving and suffering it causes only by abandoning what cover
 
 "Two aspects of sīla are essential to the training: right "performance" (caritta), and right "avoidance" (varitta)."
 
+> Anigha: A mind with samādhi is a mind that is independent and self-contained, and doesn't need to pursue or deal with anything to be at ease—neither sensuality and things in the world, nor a meditation technique and experiences arising from it. It is a mind that is well established in the only reliable form of contentment: *the abandoning of needs, not their fulfillment*. And that's precisely what virtue very directly leads to.
+
+→ Virtue leads to contentment through the abandonment of needs.
+
 > Anigha: you can only begin to develop this higher understanding (the Right View) if you have purified your virtue first.
 
 > Anigha: "(they) make compromises in their virtue and their awareness of uncomfortable truths"
