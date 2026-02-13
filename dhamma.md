@@ -5,6 +5,10 @@
 
 ## Virtue (Sila?) via Sense Restraint
 
+> Julius Evola: In Buddhism, the elements of sīla, that is, of "right conduct," are considered purely as "instruments of the mind": it is not a question of "values" but of "instruments," instruments of a virtus, not in the moralistic sense but in the ancient sense of virile energy.
+
+"Two aspects of sīla are essential to the training: right "performance" (caritta), and right "avoidance" (varitta)."
+
 > Anigha: you can only begin to develop this higher understanding (the Right View) if you have purified your virtue first.
 
 > Anigha: "(they) make compromises in their virtue and their awareness of uncomfortable truths"
