@@ -33,6 +33,10 @@ That said: One begins the training before seeing clearly where and why one is go
 
 > Anigha: "human existence is made for sensuality and reproduction. If you want liberation, you don't do what your birth is meant for."
 
+> If you've discerned the true purpose of virtue, clinging to it becomes entirely redundant for maintaining it — just as clinging to the choice not to drink bleach is unnecessary if you fully understand what what it would do to you.
+
+
+
 ---
 
 https://www.reddit.com/r/HillsideHermitage/comments/171sdfm/am_i_kidding_myself_by_thinking_streamentry_is/
