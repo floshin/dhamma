@@ -8,8 +8,8 @@ Unwirklich ist, was (noch) nicht verwirklicht ist.
 
 Shankara: *Vivaratavâda*  
 Ramanuja: *Parinamavada*  
-Buddha: *Ksanikavada*
-Vinoba: *Samanvada*
+Buddha: *Ksanikavada*  
+Vinoba: *Samanvada*  
 
 Vinoba (paraphrased): The world is not *Vivarta* of Brahman, it is *Parinama* of Brahman.
 
