@@ -25,5 +25,7 @@ The "individual reality" we therefore call "the Soul", the "universal reality" w
 
 > Anigha: the point of both this and the "container" description is to point towards seeing "with this, this is", which is the paṭiccasamuppāda/simultaneous dependence principle that is the only way out of the sense of self.
 
+Seeing a body within a body: https://www.reddit.com/r/HillsideHermitage/comments/17jbn8d/seeing_a_body_within_the_body_by_bhikkhu_an%C4%ABgha/
+
 
 
