@@ -19,3 +19,9 @@ in understanding this, one understands the dhamma and its point -- which is the 
 ## Yoniso Manasikara
 
 https://www.reddit.com/r/HillsideHermitage/comments/171sdfm/am_i_kidding_myself_by_thinking_streamentry_is/
+
+
+## Sotapanna
+
+https://www.reddit.com/r/HillsideHermitage/comments/1f9hffn/i_still_dont_understand_about_sotapanna/
+
