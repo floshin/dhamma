@@ -36,10 +36,7 @@ Flosha: "Sacrifice is the Essence of Right Economy".
 
 > Revolutionary spirit should be always independent, and awakened. With self-sacrificing boldness it should vouch that the state power and military dominance shall keep out of the independent and co-operative self-government of local republics. 
 
-
-
-
-
+---
 
 > In the ninth chapter of the Gita verse no. 11 says that "men undervalue God in the human form". Vinoba's interpretation of this verse is that *Yogi* and *Sannyasi* stand for diametrically opposite approaches to life. But Vinoba showed that since both have realized the infinite, their value is equalized.
 
@@ -52,5 +49,27 @@ Flosha: "Sacrifice is the Essence of Right Economy".
 (and how? Nothing is written there)
 
 Is an act worldly or spiritual? Vinoba explains that all spirituality is nothing if it does not cleanse our worldly behavior. Where do you see sinner and *Sadhu* as equal? Of course at the inner light, a sinner once transformed can never again fall back to his bad habits so no one is condemnable. The flame of conscience is to be lighted by educating lovingly. 
+
+---
+
+The seventeenth and eighteenth chapters of the Bhagavad Gita mention nine topics where *Lok-Sangraha* leads to light the path.
+I. The field of Faith
+II. The field of Food - Consumption
+III. The field of Yajna - Ecological concern.
+IV. The field of Dana - Social concern.
+V. The field of Tapa - Bodily concern.
+VI. The field of surrender.
+VII. The field of work - Action, behavior.
+VIII. The field of knowledge.
+IX. The field of the agent of action - the human being.
+
+> *Sumati Kumati Sabake Ura Basahin* - Good and Evil reside in every heart - select the virtuous, the best and forget the rest that is all one can do.
+
+> Vinoba felt that his whole philosophy of Samya-Yoga, i.e. liberty, equality, fraternity and all pervasive justice is incorporated into Sarvodaya's constructive program. Vinoba hiimself summarised his idea of a utopian heaven on earth in three words - Truth, Non-violence and Compassion.
+
+> Gita (paraphrased): There is no happiness without peace. There is no peace without self-sacrifice. There is no self-sacrifice without a wise sense of appropriation. And there is no sense of equality or brotherhood without developing the quality of self-restraint.
+
+> Even in cities, small all-inclusive cooperation can be worked out through Municipal Council, where 1000 or less families can build up a "face to face fidelity and loyalty". Thus Vinoba has floated around an idea with an ideal. "Ideas have no fences. The have no boundaries. Language, religion, senses, nationalism and every other barricade is transgressed by ideas. Ideas have an entry into every noble heart inspiring individuals, capturing his/her imagination, transforming him and making him angelic in performance. 
+
 
 
