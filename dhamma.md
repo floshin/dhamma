@@ -9,6 +9,17 @@ Eightfold purification (MN 24 paraphrased):
 
 → The renunciate life begins by "purification of virtue". 
 
+In other words:
+Purifying virtue purifies the mind.  
+Purifying the mind purifies the view (right view).   
+Purifying view overcomes doubt (right resolve).   
+Overcoming doubt reveals, makes known what is the path and what not.  
+Clearly knowing the path makes clear what is the practice.  
+Clearly knowing the practice leads to complete knowledge.  
+Complete vision leads to total Nibbana by non-assumption.   
+
+That said: One begins the training before seeing clearly where and why one is going, before knowing the path, before having any clarity about the practice. Only by purifying virtue, by keeping the precepts, the mind is purified and right view is developed. Only by right view the path and nature of the practice becomes clear, then one just has to continue walking the path and one will reach Nibbana eventually. 
+
 
 ## Virtue (Sila?) via Sense Restraint
 
