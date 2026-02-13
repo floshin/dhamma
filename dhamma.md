@@ -14,6 +14,9 @@ in understanding this, one understands the dhamma and its point -- which is the 
 
 > Anigha: "(they) make compromises in their virtue and their awareness of uncomfortable truths"
 
+> Anigha: "human existence is made for sensuality and reproduction. If you want liberation, you don't do what your birth is meant for."
+
+
 
 ## Stream-Entry and Virtue
 
