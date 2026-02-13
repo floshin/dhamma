@@ -57,6 +57,8 @@ One can reveal the craving and suffering it causes only by abandoning what cover
 
 > when the intent (citta) is amiss, actions of body, speech and mind are also amiss. —AN 3.110
 
+> ‘I am the owner of my deeds and heir to my deeds. Deeds are my womb, my relative, and my refuge. I shall be the heir of whatever deeds I do, whether good or bad’
+
 
 
 
