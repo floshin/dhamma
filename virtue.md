@@ -24,7 +24,13 @@ One can reveal the craving and suffering it causes only by abandoning what cover
 
 > Anigha: "human existence is made for sensuality and reproduction. If you want liberation, you don't do what your birth is meant for."
 
-> If you've discerned the true purpose of virtue, clinging to it becomes entirely redundant for maintaining it — just as clinging to the choice not to drink bleach is unnecessary if you fully understand what what it would do to you.
+
+
+## Effortless Right Conduct firmly established
+
+> Anigha: If you've discerned the true purpose of virtue, clinging to it becomes entirely redundant for maintaining it — just as clinging to the choice not to drink bleach is unnecessary if you fully understand what it would do to you.
+
+> Anigha: Seeing your own mind clearly, you would know what every action of yours would be rooted in before you do it, and you would naturally keep all the precepts without thinking about them simply by refraining from everything that you see as stemming from an impure mental state.
 
 ---
 
