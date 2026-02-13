@@ -2,6 +2,17 @@
 
 > the Dhamma is apparent here-and-now, timeless, leading inwards, and to be experienced individually by the wise.
 
+The Path:
+> Purification of virtue is only for the sake of purification of mind.  
+> Purification of mind is only for the sake of purification of view.  
+> Purification of view is only for the sake of purification through overcoming doubt.
+> Purification through overcoming doubt is only for the sake of purification of knowledge-and-vision of what is the path and what is not the path.  
+> Purification of knowledge-and-vision of what is the path and what is not the path is only for the sake of purification of knowledge-and-vision of the practice.  
+> Purification of knowledge-and-vision of the practice is only for the sake of purification of knowledge-and-vision.  
+> Purification of knowledge-and-vision is only for the sake of total Nibbāna by non-assumption. The renunciate life is led under the Auspicious One for the sake of total Nibbāna by non-assumption.”
+
+In short: The renunciate life is led for the sake of total Nibbāna by non-assumption. Leading a renunciate life begins by "purification of virtue". 
+
 
 ## Virtue (Sila?) via Sense Restraint
 
