@@ -32,3 +32,11 @@ https://www.reddit.com/r/HillsideHermitage/comments/171sdfm/am_i_kidding_myself_
 
 https://www.reddit.com/r/HillsideHermitage/comments/1f9hffn/i_still_dont_understand_about_sotapanna/
 
+
+## Anatta
+
+The Buddha said in his second discourse that things are anattā because they cannot be fully controlled to our satisfaction, not because they have no "lasting identity". The Suttas quite clearly state that things do endure, and not only as an "illusion" of the ignorant mind, but for the Buddha himself, and his ability to see that is praised:
+
+    “Sir, the Buddha knows feelings as they arise, as they remain, and as they go away. He knows perceptions as they arise, as they remain, and as they go away. He knows thoughts as they arise, as they remain, and as they go away. This too I remember as an incredible and amazing quality of the Buddha.”
+—MN 123 
+
