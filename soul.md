@@ -19,3 +19,11 @@ The "individual reality" we therefore call "the Soul", the "universal reality" w
 
 > Vinoba's theory of revolution emanates from the realisation of the unity of mankind. Given this unity and its perception, man must widen the horizons of his own self, the Atman. He says, "the mother experiences the joy of renunciation and sacrifices for the sake of her children and gets happiness thereby. Vinoba wants us to widen the area of family love to the whole village community on the basis of unity of Atman.
 
+---
+
+## Anatta 
+
+> Anigha: the point of both this and the "container" description is to point towards seeing "with this, this is", which is the paṭiccasamuppāda/simultaneous dependence principle that is the only way out of the sense of self.
+
+
+
