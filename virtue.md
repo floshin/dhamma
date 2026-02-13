@@ -6,6 +6,8 @@
 
 One can reveal the craving and suffering it causes only by abandoning what covers them up; and what covers them up is sensuality, identification with and ownership of the body, sexuality, intoxication, indulgence and distraction. The precepts therefore contain abstaining from exactly these. Not because there is any moral fault in doing otherwise, but simply because abstaining from them is necessary, in a technical or methodical sense, in order to reveal the craving. 
 
+> Anigha: Your own mind and its cravings will become apparent only when you firmly set up a fence around yourself and no longer do certain things that cause you to become scattered and lose perspective over what's happening internally, and these are the things that the precepts prevent you from doing.
+
 > Julius Evola: In Buddhism, the elements of sīla, that is, of "right conduct," are considered purely as "instruments of the mind": it is not a question of "values" but of "instruments," instruments of a virtus, not in the moralistic sense but in the ancient sense of virile energy.
 
 "Two aspects of sīla are essential to the training: right "performance" (caritta), and right "avoidance" (varitta)."
