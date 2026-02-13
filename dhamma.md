@@ -21,6 +21,17 @@ https://www.reddit.com/r/HillsideHermitage/comments/1acfdj3/role_of_virtue_beyon
 
 
 
+##  "Conditionality" (paṭiccasamuppāda) 
+
+https://www.reddit.com/r/HillsideHermitage/comments/1c7mobi/comment_on_nanavira_and_the_relevance_of_flux_to/
+
+Anigha: 
+"Conditionality" (paṭiccasamuppāda) is not about a process of momentary changes, an Abhidhammic idea that's utterly absent from the EBTs. It's about the fact that no matter how long any given thing lasts, there will always be something else that it depends on, the most fundamental being this fragile body remaining alive. That's why in MN 38, the Buddha discusses dependent origination in terms of the nutriment of the things that have arisen, and makes it clear that passion is abandoned by recognizing that without the nutriment, the thing standing upon it cannot remain. That is why things are anicca, dukkha, and anattā; no moment-to-moment process is mentioned.
+
+In the same vein, SN 12.67 compares "conditionality" to two sticks standing upon each other, such that if you take away any of them, the other cannot stand. Again, no mention of "moments". 
+
+
+
 
 
 ## Yoniso Manasikara
