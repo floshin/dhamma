@@ -46,6 +46,7 @@ https://www.reddit.com/r/HillsideHermitage/comments/1f9hffn/i_still_dont_underst
 
 ## Anatta
 
+https://www.reddit.com/r/HillsideHermitage/comments/1c7mobi/comment/l0sa4uz/?force-legacy-sct=1
 
 > Anigha: The Buddha said in his second discourse that things are anattā because they cannot be fully controlled to our satisfaction, not because they have no "lasting identity". The Suttas quite clearly state that things do endure, and not only as an "illusion" of the ignorant mind, but for the Buddha himself, and his ability to see that is praised:
 
