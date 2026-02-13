@@ -20,6 +20,33 @@ https://www.reddit.com/r/HillsideHermitage/comments/171sdfm/am_i_kidding_myself_
 in understanding this, one understands the dhamma and its point -- which is the "awakening of the dhamma eye", i. e. becoming independent of others in interpreting the dhamma, becoming able to understand it experientially. 
 
 
+---
+
+## The Noble Eightfold Path
+
+* right view
+* right resolve
+* right speech
+* right conduct
+* right livelihood
+* right effort
+* right mindfulness
+* right samadhi 
+
+Buddha is said to have told Subhadda before his death:
+
+> In whatsoever doctrine and discipline, Subhadda, the Ariyan Eightfold Path is not found, there is not found any man of true sainthood (...). But in that Doctrine and Discipline in which is found the Ariyan Eightfold Path, there are men of true sainthood.
+
+
+
+
+---
+
+
+
+
+
+
 ## Right View
 
 https://www.reddit.com/r/HillsideHermitage/comments/1aropkz/what_did_the_householders_in_the_buddhas_time_see/
