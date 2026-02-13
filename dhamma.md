@@ -46,8 +46,15 @@ https://www.reddit.com/r/HillsideHermitage/comments/1f9hffn/i_still_dont_underst
 
 ## Anatta
 
-The Buddha said in his second discourse that things are anattā because they cannot be fully controlled to our satisfaction, not because they have no "lasting identity". The Suttas quite clearly state that things do endure, and not only as an "illusion" of the ignorant mind, but for the Buddha himself, and his ability to see that is praised:
+
+> Anigha: The Buddha said in his second discourse that things are anattā because they cannot be fully controlled to our satisfaction, not because they have no "lasting identity". The Suttas quite clearly state that things do endure, and not only as an "illusion" of the ignorant mind, but for the Buddha himself, and his ability to see that is praised:
 
     “Sir, the Buddha knows feelings as they arise, as they remain, and as they go away. He knows perceptions as they arise, as they remain, and as they go away. He knows thoughts as they arise, as they remain, and as they go away. This too I remember as an incredible and amazing quality of the Buddha.”
 —MN 123 
 
+
+> Anigha: You're confusing identity in the sense of a thing remaining the same throughout time, and the sense of self which, as always explained in the Suttas, comes down to taking things as "mine". A thing remaining the same for however long does not force you to take it as "mine": even the most ignorant person in the world wouldn't automatically regard their neighbor's house as "mine" just because they see it as remaining the same for many years.
+
+The lack of understanding of how something (everything, in the end) will be suddenly ripped away from you sometime in the future, even if its billions of years later, means not seeing the peril of taking it as "mine", and that's why appropriation and the sense of self take place even though they're entirely mistaken. The change that will eventually happen to every phenomenon does not care at all about how attached you were to it.
+
+In fact, the erroneous sense of "mine" develops from familiarity, which requires things to last for a while. 
