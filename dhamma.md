@@ -30,7 +30,7 @@ in understanding this, one understands the dhamma and its point -- which is the 
 The Noble Eightfold Path
 
 * right view
-* right resolve
+* right resolve/aspiration
 * right speech
 * right conduct
 * right livelihood
