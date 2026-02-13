@@ -25,3 +25,12 @@ One can reveal the craving and suffering it causes only by abandoning what cover
 > Anigha: "human existence is made for sensuality and reproduction. If you want liberation, you don't do what your birth is meant for."
 
 > If you've discerned the true purpose of virtue, clinging to it becomes entirely redundant for maintaining it — just as clinging to the choice not to drink bleach is unnecessary if you fully understand what what it would do to you.
+
+---
+
+AN 10.62 paraphrased:
+> Craving for being is nourished by ‘Ignorance.’ Ignorance is nourished by ‘the five hindrances.’ The five hindrances are nourished by ‘the three kinds of misconduct’ (of body, speech, and mind).
+
+
+
+
