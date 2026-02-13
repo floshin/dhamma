@@ -1,6 +1,17 @@
+# Dhamma
+
 > the Dhamma is apparent here-and-now, timeless, leading inwards, and to be experienced individually by the wise.
 
 
+## Virtue (Sila?) via Sense Restraint
+
+> Anigha: you can only begin to develop this higher understanding (the Right View) if you have purified your virtue first.
+
+> Anigha: "(they) make compromises in their virtue and their awareness of uncomfortable truths"
+
+> Anigha: "human existence is made for sensuality and reproduction. If you want liberation, you don't do what your birth is meant for."
+
+---
 
 https://www.reddit.com/r/HillsideHermitage/comments/171sdfm/am_i_kidding_myself_by_thinking_streamentry_is/
 
@@ -15,12 +26,6 @@ https://www.reddit.com/r/HillsideHermitage/comments/1aropkz/what_did_the_househo
 
 
 
-
-## Sense Restraint
-
-> Anigha: "(they) make compromises in their virtue and their awareness of uncomfortable truths"
-
-> Anigha: "human existence is made for sensuality and reproduction. If you want liberation, you don't do what your birth is meant for."
 
 
 
