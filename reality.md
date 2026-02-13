@@ -28,3 +28,9 @@ Vinoba says: "Kanchana Kankanavat Vivartah".
 
 > Vinoba seems to advocate the doctrine that by learning men continues to change every moment. (...) The philosophical idealism of Vedanta would be useless if it only builds castles in the air. Vinoba's idealism has its roots in the earth. It is practical.
 > It not only aims at changing the hearts of men but also their physical conditions through social action. The constructive programme of Sarvodaya is based on this doctrine. Idealism is necessary because realism and pragmatism are children born of it and it shows the direction of progress.
+
+
+## Impermanence
+
+Seeing Impernance Developing Dispassion:
+https://www.youtube.com/watch?v=tp5WgfgJ-3s
