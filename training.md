@@ -1,5 +1,6 @@
 # Internal Training
 
+> 8.1.21 whatever training rule has been laid down by the Buddha—this is called “way of life”. 8.1.22 One trains in this; therefore it is called “after taking on the way of life”.
 
 > recognize that ordination is not for the sake of running away and *forgetting* about your problems but about *facing them* relentlessly on the internal level. - Bhante Anigha
 
