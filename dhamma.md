@@ -22,7 +22,8 @@ in understanding this, one understands the dhamma and its point -- which is the 
 
 ---
 
-## The Noble Eightfold Path
+## āryāṣṭāṅgamārga
+The Noble Eightfold Path
 
 * right view
 * right resolve
