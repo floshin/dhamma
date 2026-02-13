@@ -9,3 +9,8 @@
 (Vinoba Bhave in the 21st Century)
 
 
+> "Santo Bhoomim tapasa dharayanti" - The whole World is upheld by the austerities of the Saints.
+
+
+
+
