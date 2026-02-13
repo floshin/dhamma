@@ -34,6 +34,11 @@ Anigha:
 In the same vein, SN 12.67 compares "conditionality" to two sticks standing upon each other, such that if you take away any of them, the other cannot stand. Again, no mention of "moments". 
 
 
+## Samadhi
+
+Outside of samādhi, the body does feel the pull of agreeable and disagreeable sense objects, but for one who fully understands the deathless with the mind (not a mystical state outside of the aggregates, but rather the ever-present possibility to not crave amidst what incites craving, i.e., "withstand the tide"), that's a non-issue, because the mind is where the whole mass of suffering exists. An agitated body is just an insignificant nuisance in comparison, and that's why an Arahant doesn't need to protect their samādhi anymore (MN 107, SN 16.5, SN 17.30).
+
+For a noble one, who knows how direct their mind to the deathless or "cessation" with the mind, the body eventually follows along, i.e. jhānas (AN 9.33). The body itself (the six senses as a unitary whole, not a collection of sensations) ceases to experience the pull of the things that used to pull it while they're still present (SN 35.247, SN 35.97), and that relief results in a very physical joy, ease, "rapture", etc., which is just a byproduct and a further substantiation of the same mental understanding. This is always temporary, but abiding in it repeatedly is how a noble disciple's understanding of the deathless eventually reaches fulfillment, and samādhi becomes just a nice-to-have.
 
 
 
