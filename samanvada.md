@@ -1,7 +1,7 @@
 # Samanvada
 
 * Vinobas Theory about the reality of the world.
-* Vinobas
+* Vinobas approach to synthesis (compare with modern science and traditionalism/perennialism)
 
 If you think or believe that in your particular culture, tradition or religion or in your book there is something, a truth, a value, or ideas which are not only relevant for you, but which are true and valuable for everyone, meant for everyone and should therefore be known by everyone; if you think in this way, then it is in your interest to share this truth, this value, these ideas with others who are not aware of them yet.  
 
