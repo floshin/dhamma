@@ -28,6 +28,13 @@ One can reveal the craving and suffering it causes only by abandoning what cover
 
 ---
 
+## Intent(ion)
+
+> when the intent (citta) is amiss, actions of body, speech and mind are also amiss. —AN 3.110
+
+
+
+
 AN 10.62 paraphrased:
 > Craving for being is nourished by ‘Ignorance.’ Ignorance is nourished by ‘the five hindrances.’ The five hindrances are nourished by ‘the three kinds of misconduct’ (of body, speech, and mind).
 
