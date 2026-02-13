@@ -9,6 +9,13 @@ https://www.reddit.com/r/HillsideHermitage/comments/171sdfm/am_i_kidding_myself_
 in understanding this, one understands the dhamma and its point -- which is the "awakening of the dhamma eye", i. e. becoming independent of others in interpreting the dhamma, becoming able to understand it experientially. 
 
 
+
+## Sense Restraint
+
+> Anigha: "(they) make compromises in their virtue and their awareness of uncomfortable truths"
+
+
+
 ## Yoniso Manasikara
 
 https://www.reddit.com/r/HillsideHermitage/comments/171sdfm/am_i_kidding_myself_by_thinking_streamentry_is/
