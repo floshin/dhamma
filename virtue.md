@@ -49,6 +49,11 @@ One can reveal the craving and suffering it causes only by abandoning what cover
 
 > Anigha: Seeing your own mind clearly, you would know what every action of yours would be rooted in before you do it, and you would naturally keep all the precepts without thinking about them simply by refraining from everything that you see as stemming from an impure mental state.
 
+> Anigha: What would happen if you and everyone else on earth suddenly forgot all the Vinaya rules? If you're not sure that you'd be able to avoid misconduct even in that scenario, you are not accomplished in virtue nor in wisdom.
+
+
+
+
 ---
 
 ## Intent(ion)
