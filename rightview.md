@@ -6,7 +6,7 @@ One part of it are the "perversions of perception".
 
 > There are these four perversions of perception, thought, and view:  
 > Taking impermanence as permanence.  
-> Taking suffering as happiness.
+> Taking suffering as happiness.  
 > Taking not-self as self.  
 > Taking ugliness as beauty.
 
