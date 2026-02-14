@@ -65,6 +65,9 @@ One can reveal the craving and suffering it causes only by abandoning what cover
 AN 10.62 paraphrased:
 > Craving for being is nourished by ‘Ignorance.’ Ignorance is nourished by ‘the five hindrances.’ The five hindrances are nourished by ‘the three kinds of misconduct’ (of body, speech, and mind).
 
+→ Thus: By misconduct in body, speech and mind, the five hindrances are sustained. By the five hindrances, ignorance is sustained. By ignorance, craving is sustained. 
 
+AN 10.62 paraphrased:
 > Knowledge-and-liberation is nourished by ‘The seven awakening factors.’ The seven awakening factors are nourished by ‘the four foundations of recollectedness.’ The four foundations of recollectedness are nourished by ‘the three kinds of good conduct.’ The three kinds of good conduct are nourished by ‘Sense restraint.’ Sense restraint is nourished by ‘recollectedness-and-awareness.’ Recollectedness-and-awareness is nourished by ‘attention in light of the origin.’ Attention in light of the origin is nourished by ‘faith.’ Faith is nourished by ‘listening to the true teaching.’ Listening to the true teaching is nourished by ‘associating with righteous men.’
 
+→ thus: Associate with righteous man in order to learn about the true teaching. By learning about the true teaching develop faith. By faith the attention can remain in light of the origin. By letting your attention remain in light of the origin, recollectedess and awareness develop. By being recollected and aware, sense restraint becomes possible. By sense restraint the three kinds of good conduct develop. Good conduct strengthens the four foundations of recollectedness. The ... strengthen the seven awakening factors. The ... lead to knowledge and liberation.
