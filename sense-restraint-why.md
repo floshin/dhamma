@@ -10,3 +10,5 @@ From this follows that when it is hard for you to restrain your senses and if yo
 
 > Nyanamoli: Any desire that arises in regard to anything available through the senses is at its root oppressing.
 
+> Desire ... pressures you to act. But you don't *need* to act.
+
