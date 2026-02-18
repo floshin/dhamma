@@ -20,5 +20,7 @@ ease. [...] **When you are engaging in sensual desires, you do so in order to be
 > The only reason you are engaged
 with sensuality is because the pressure of sensual desire is unpleasant, and you don’t know any other escape from that pressure other than the temporary release through sensual indulgence.
 
+> The more dependent you are on running away from that pressure of sensual desire, the more pressure that desire will exert over you.
+
 
 
