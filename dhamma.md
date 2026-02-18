@@ -4,6 +4,10 @@
 
 > Buddha: ‘I cannot make anyone enlightened. I just point the way, and they either choose to follow my instruction or not.’
 
+> Buddha: Some succeed, while others fail. (...) What can I do about that?
+
+
+
 
 Eightfold purification (MN 24 paraphrased):
 > (1) Purification of virtue - for the sake of (2) purification of mind - for the sake of (3) purification of view - for the sake of (4) purification through overcoming doubt - for the sake of (5) purification of knowledge-and-vision of what is the path and what is not the path - for the sake of (6) purification of knowledge-and-vision of the practice - for the sake of (7) purification of knowledge-and-vision for the sake of (8) total Nibbāna by non-assumption.
