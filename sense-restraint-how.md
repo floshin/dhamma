@@ -20,3 +20,8 @@ devalued sensuality *forever*.
 
 > There will be no wisdom arising on account of whatever endurance you undergo, because you do so while still acting from the point of view that sensual pleasures are valuable.
 
+> It doesn’t matter whether you’re a monk or a lay person: if you want to practice the Dhamma, practically speaking, most of the work comes down to drying your mind from sensuality, it doesn’t come down to finding the perfect technique or reading the exact sutta that will make you enlightened.
+> The reason why you’re not enlightened even after you have read all the Suttas, is not because you haven’t read them enough or you haven’t thought about them enough — it’s because your sticks are not dry enough and your views are not relinquished.
+
+
+
