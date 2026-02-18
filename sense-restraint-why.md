@@ -25,5 +25,8 @@ with sensuality is because the pressure of sensual desire is unpleasant, and you
 > If you want to free yourself from it, you have to first start restraining your senses, and refraining from making it worse
 by giving in to that pressure of desire.
 
+> through restraint, the painful nature of that desire in itself becomes apparent.
 
+That means, in order for sense restraint to become easy, you have to fully understand why and see how sensuality enslaves you. But at the same time, only by practicing sense restraint regardless of your lack of understanding beyond a mere theoretical assumption, will this understanding develop, because by enduring the pressure you get aware of it and the enslaving nature of desire is revealed. 
 
+And by revealing the enslaving nature of sensual desire, only by doing so, by becoming aware of it, can an actual desire for liberation arise. 
