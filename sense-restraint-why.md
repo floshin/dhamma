@@ -22,5 +22,8 @@ with sensuality is because the pressure of sensual desire is unpleasant, and you
 
 > The more dependent you are on running away from that pressure of sensual desire, the more pressure that desire will exert over you.
 
+> If you want to free yourself from it, you have to first start restraining your senses, and refraining from making it worse
+by giving in to that pressure of desire.
+
 
 
