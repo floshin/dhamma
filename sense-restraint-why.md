@@ -50,9 +50,8 @@ Or:
   * External abandonment consists in physical withdrawing from sensual pleasures, not acting out of sensual pleasure and slowly removing any inclination towards it. 
   * Internal abandonment consists in mentally withdrawing from sensual pleasures, but as well as devaluing it, slowly removing any value for it.
  
-
-
 > Withdrawal from sensuality, sustaining that mind withdrawn from sensuality — it’s not just doable, it’s what the practice is. 
 
+> If you don’t see the danger in it, you are still valuing it.
 
-
+So: You know that you haven't devalued it, mentally abandoned it yet, as long as you cannot clearly see the danger in it just as you see danger in a physical threat. 
