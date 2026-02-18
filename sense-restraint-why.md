@@ -10,5 +10,10 @@ From this follows that when it is hard for you to restrain your senses and if yo
 
 > Nyanamoli: Any desire that arises in regard to anything available through the senses is at its root oppressing.
 
-> Desire ... pressures you to act. But you don't *need* to act.
+> When a desire arises, the automatic response is to give in to that pressure of desire. And why would you give in to the pressure of any desire? Because it’s unpleasant. If the pressure of the desire
+were neutral or pleasant, you wouldn’t make any effort and spend time
+trying to gain what your desire wants, because you would already be at
+ease. [...] **When you are engaging in sensual desires, you do so in order to be free from the unpleasant pressure of that very desire.**
+
+> Desire pressures you to act. But you don't *have* to act. / You always have a choice.
 
