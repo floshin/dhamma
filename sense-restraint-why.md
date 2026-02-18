@@ -62,6 +62,13 @@ So: You know that you haven't devalued it, mentally abandoned it yet, as long as
 have to — if you think you’re exempted from it, if you think sensuality is
 not a problem, if you think sensuality is not ‘your’ problem.
 
+---
+
+> If you are not free from sensuality, then you don’t yet understand (...). Your contemplation is not entirely adequate; because if it were, then you would understand the danger and lose desire for it.
+
+Understanding the danger would lead to losing desire for it. Thus, trying to understand is the highest priority. 
+
+
 
 
 
