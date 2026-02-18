@@ -30,3 +30,7 @@ by giving in to that pressure of desire.
 That means, in order for sense restraint to become easy, you have to fully understand why and see how sensuality enslaves you. But at the same time, only by practicing sense restraint regardless of your lack of understanding beyond a mere theoretical assumption, will this understanding develop, because by enduring the pressure you get aware of it and the enslaving nature of desire is revealed. 
 
 And by revealing the enslaving nature of sensual desire, only by doing so, by becoming aware of it, can an actual desire for liberation arise. 
+
+---
+
+> Nyanamoli: People are terrified of isolation. They can no longer escape what they have been running away from.
