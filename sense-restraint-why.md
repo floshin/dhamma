@@ -55,3 +55,14 @@ Or:
 > If you don’t see the danger in it, you are still valuing it.
 
 So: You know that you haven't devalued it, mentally abandoned it yet, as long as you cannot clearly see the danger in it just as you see danger in a physical threat. 
+
+> If you start contemplating the infinite peril, you will be withdrawing yourself both physically and mentally.
+
+> You can’t simply decide ‘I will mentally withdraw myself from sensuality,’ because your mind is already in it. However, you can make your mind withdraw from it by seeing the danger in that which it values. And you will never see the danger in that which you value if you think you don’t
+have to — if you think you’re exempted from it, if you think sensuality is
+not a problem, if you think sensuality is not ‘your’ problem.
+
+
+
+
+
