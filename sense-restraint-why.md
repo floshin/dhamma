@@ -6,3 +6,7 @@ And if you don't know why, even if you try, it will be very hard to restrain any
 
 From this follows that when it is hard for you to restrain your senses and if you don't really understand *why* you should, it should be the highest priority to understand more and more, why it should be done. Because struggling with it may be necessary and worthwile, but only complete understanding can lead to mastery. 
 
+---
+
+> Nyanamoli: Any desire that arises in regard to anything available through the senses is at its root oppressing.
+
