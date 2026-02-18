@@ -39,9 +39,18 @@ And by revealing the enslaving nature of sensual desire, only by doing so, by be
 
 > Nyanamoli: As the Buddha described, all the effort that you put into trying to light a fire with wet sticks will go to waste, because you have not dried the sticks through living physically withdrawn from sensual pleasures, and internally abandoning the value you hold for sensual pleasures.
 
+> Mentally abandoning sensuality is not simply about not thinking about it, it means *devaluing* it.
+
 Two aspects of sense restraint:
-* Living physically withdrawn from sensual pleasures.
-* Internally abandoning the value you hold for sensual pleasures. 
+* External: Living physically withdrawn from sensual pleasures.
+* Internal: Mentally abandoning the value you hold for sensual pleasures.
+
+Or: 
+* Abandon Sensuality externally (physically) and internally (mentally).
+  * External abandonment consists in physical withdrawing from sensual pleasures, not acting out of sensual pleasure and slowly removing any inclination towards it. 
+  * Internal abandonment consists in mentally withdrawing from sensual pleasures, but as well as devaluing it, slowly removing any value for it.
+ 
+
 
 > Withdrawal from sensuality, sustaining that mind withdrawn from sensuality — it’s not just doable, it’s what the practice is. 
 
