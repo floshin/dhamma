@@ -11,3 +11,5 @@
 
 > When you do keep the virtue, practice sense restraint and patient endurance, you have to do it with the attitude of: ‘I will do this infinitely, forever. it doesn’t matter how long this lasts, I will have to endure it forever, and I won’t act out of it.’
 
+> You might have already endured more than enough for wisdom to arise. But wisdom will not arise because, overall, you’re not relinquishing the *value* of sensuality.
+
