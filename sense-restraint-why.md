@@ -34,3 +34,16 @@ And by revealing the enslaving nature of sensual desire, only by doing so, by be
 ---
 
 > Nyanamoli: People are terrified of isolation. They can no longer escape what they have been running away from.
+
+---
+
+> Nyanamoli: As the Buddha described, all the effort that you put into trying to light a fire with wet sticks will go to waste, because you have not dried the sticks through living physically withdrawn from sensual pleasures, and internally abandoning the value you hold for sensual pleasures.
+
+Two aspects of sense restraint:
+* Living physically withdrawn from sensual pleasures.
+* Internally abandoning the value you hold for sensual pleasures. 
+
+> Withdrawal from sensuality, sustaining that mind withdrawn from sensuality — it’s not just doable, it’s what the practice is. 
+
+
+
