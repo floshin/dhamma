@@ -17,3 +17,8 @@ ease. [...] **When you are engaging in sensual desires, you do so in order to be
 
 > Desire pressures you to act. But you don't *have* to act. / You always have a choice.
 
+> The only reason you are engaged
+with sensuality is because the pressure of sensual desire is unpleasant, and you don’t know any other escape from that pressure other than the temporary release through sensual indulgence.
+
+
+
