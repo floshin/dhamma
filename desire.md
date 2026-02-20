@@ -1,5 +1,11 @@
 # Desire
 
+> The eye delights in forms, takes delight in forms, rejoices in forms; the ear delights in sounds, takes delight in sounds, rejoices in sounds; the nose delights in odours, takes delight in odours, rejoices in odours; the
+tongue delights in flavours, takes delight in flavours, rejoices in flavours; the body delights in touches, takes delight in touches, rejoices in touches; the mind
+delights in ideas, takes delight in ideas, rejoices in ideas; (all) that has been
+tamed by the Tathāgata, guarded, protected, and restrained, and he
+teaches the Dhamma for its restraint. – MN 75
+
 What is desire?
 * Desire vs. Need. It is always something you want or seem to want, sometimes even something that you seem to *need*. But a desire is *never* a need. One can have a desire for something that one *also* needs, but it is never the same. Your body may need to eat to survive and you may want to eat too; it can be on behalf of this need or it can be on behalf of something else, like delighting in taste, but the body needs it if you want it or not; and often you desire it even if in absence of any need. Thus desire is not need and need is not desire.
 
@@ -21,6 +27,12 @@ between you and your body.
 
 > Your dependence on the pleasures of the sense objects is determined by and dependent upon the pressure that your body exerts on your mind.
 
+> Overcoming sensuality (...) is about taming that which pressures you, because of which you are not free.
+
+> Sense restraint — not engaging in those sense objects that are inciting of lust — is the prerequisite for discerning the root of the problem.
+
+> If you don’t engage with the pleasures that the senses are used to, their
+dependence on them will cease.
 
 
 
