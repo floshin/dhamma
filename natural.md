@@ -31,9 +31,16 @@ In following this goal, their training had many similarities to the training of 
 
 * They trained themselves to endure the cold, the heat; they did not hide from nature, but exposed themselves to it, against the usual and habitual comfort of the society they were living in. Because it is unnatural to do otherwise. Just as a dog is requiring much less comfort, can endure the weather and can sleep on a hard floor, so they followed this example and lived accordingly.
 
-* ...
+* They also were against any form of beautification, just like the buddhists, because which other animal is running around with amulets and rings, paints its face to appear younger or more attractive? It is all unnatural and thus unvirtuous in the cynic philosophy.
 
-* 
+* In the same way they also were against entertainment. For them it was all vain and unnatural theatre. Think of Diogenes, who demonstratively walked out of the theatre when everyone else was walking into it. Upon asked why he is doing so:
+> I strive for this attitude in my entire lifestyle. 
+
+* In these aspects, the lifestyle of the Cynics, at least externally, is similar to that of the renunciant. One cannot say that it is particularly "natural" to depend on constant comfort and suffer in lack of it, as this constant desire for more comfort is a particular trait of the *civilised* human. 
+
+* But where they divert is in the fulfillment of the natural desires, such as hunger, thirst and sexual desire.
+
+
 
 
 
