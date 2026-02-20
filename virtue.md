@@ -5,7 +5,9 @@ Wikipedia:
 
 What is virtuous is meant to be what is truly human. As virtue can only count what is specifically human and "humanizing"; that what distinguishes humans from other animals. 
 
-Therefore, virtues are qualities that only humans can fully develop. They are thus rooted in the ability to decide, in the ability to say no, to withstand, to discern, to act in difference or even opposition to natural inclinations that other animals must follow, while humans can choose to, in the ability to sacrifice. 
+Therefore, virtues are qualities that only humans can fully develop. They are thus rooted in the ability to decide, in the ability to say no, to withstand, to discern, to act in difference or even opposition to natural inclinations that other animals must follow, while humans can choose to. And also, and in particular, in the ability to sacrifice. 
+
+> Vinoba: "... are all humanising values."
 
 --- 
 
