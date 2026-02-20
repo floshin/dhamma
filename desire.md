@@ -35,4 +35,17 @@ between you and your body.
 dependence on them will cease.
 
 
+## WHY do we desire?
+
+* Why does a specific form that we see and consider to be beautiful invoke desire, e.g. to touch and to be intimate with it?
+* If we couldn't be able to see it, we couldn't delight in its sight, but we could still delight in its touch, in feeling the shape of the form, the smoothness of the skin, the smell, the taste and the idea of it; seeing it or not the form would manifest in our mind.
+
+* Why does this desire arise? 
+
+
+
+
+
+
+
 
