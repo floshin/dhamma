@@ -100,6 +100,8 @@ Anything else would obviously be stupid, it would be like claiming a master bake
 
 So it is with the Dhamma and any religion. If you want to reach the goal the path is leading to, then it would be wise to follow it and it would be stupid not to. And it would be "wrong" to leave it in such a case, because it would lead you into the wrong direction, based on your goal. 
 
+[ the stuff above here has to be moved into the article dealing with (a)morality. ]
+
 
 
 
