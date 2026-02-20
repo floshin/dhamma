@@ -5,7 +5,7 @@ Forms of desire:
 * (Unwholesame) Craving (tanhā)
 
 Ajan Chah defines tanhā (craving) as
-> desires conditioned by ignorance of the way things are.
+> desires conditioned by ignorance (of the way things are).
 
 
 
