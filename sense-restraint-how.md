@@ -82,5 +82,24 @@ If in a buddhist context the words "right" and "wrong" are used, then never in a
 
 Either you see that the snake is actually a rope and thus see it rightly or you mistake the rope as a snake, which is wrong, which is a failure, not a moral failure, but simply a misunderstanding, a misconception etc.
 
+That is not only so in regard to right and wrong view or right and wrong order (of perception), but as well in regard to right livelihood and any other aspects of the noble eightfold path.
+
+Right livelihood isn't right due to something morally good or wrong due to something morally bad, it is right because it isn't based on wrong assumptions, or wrong because it *is* based on wrong assumptions. The idea is that when someone is trading arms and profits of war, this isn't morally wrong and one doesn't have to change ones moral values; it is worse,  it is simply done based on a wrong perception of what is going on. It is not that one ought to stop when seeing things clearly, but that one would *automatically* stop if seeing things clearly or correctly. 
+
+Short: Everything "wrong" is never wrong based on moral sin, but it is always based on a wrong understanding. And that is what every sin in the christian sense is just as well: There is neither need nor room for morality in it. Sin is based on a wrong, distorted, misguided understanding and wouldn't be possible based on a right view. It always rooted in ignorance. 
+
+> Father, forgive them, for they don't *know* what they do.
+
+But while we cannot judge others for what they don't know, for what they cannot clearly see, we ourselves of course have responsibility for our ignorance. Thus instead of taking any external action or avoid any action based on moral grounds, our highest priority, our "moral imperative", if there is such a thing, is always: Trying to clear our view, purify our understanding, taking the "Balken" away from our own eyes first before anything else. 
+
+And if specific external actions or avoidances are necessary in order to develop such a view, in order to purify our understanding, then they are necessary in a technical way, not in a moral way, they are necessary in order to reach a particular goal and are to be judged on the basis of that goal, in the very same way as an acrobatics coach will tell his athletes that they do something wrong and not correctly, not because they did anything morally wrong, but just because they made a *technical* failure or a strategical failure that takes them away from their common goal. 
+
+And in this way the precepts can be approached. They don't have to be approached from a moral perspective. They can be approached in an experimental way. Just as when a master craftsmen tells you: In order to get this result, you follow *this* technique and do it rigorously because otherwise it will not work out as intended, and then you trust him and follow his guidance and achieve that result, with no morality involved, in the same way you may trust a spiritual teacher or a book or the dhamma; they show you a path, that you are not obligated to walk. But you are open to consider their ideas and may decide that you want to try it, try walking that path towards that goal, maybe even just to see if they are right, which you only can know if following all of their instructions. 
+
+Anything else would obviously be stupid, it would be like claiming a master baker is wrong and his teachings are non-sense without following his recipe and guidance or after doing it differently and changing things as you wish. Of course you will then not achieve the result. You have to commit and trust the process. 
+
+So it is with the Dhamma and any religion. If you want to reach the goal the path is leading to, then it would be wise to follow it and it would be stupid not to. And it would be "wrong" to leave it in such a case, because it would lead you into the wrong direction, based on your goal. 
+
+
 
 
