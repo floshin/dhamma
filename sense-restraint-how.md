@@ -25,7 +25,7 @@ devalued sensuality *forever*.
 
 ---
 
-### Discerning the body
+### Discerning disown the body
 
 > If you want to uproot the dependence on the pleasure of the sense objects, you have to uproot the dependence on the pleasure of this body: its agreeability and your assumption of ownership, which results from not seeing it peripherally as a thing which endures there on its own, with its own thirsts. This disowning of the body can only be done on the level
 of that correct peripheral recognition of what the body is. 
@@ -50,5 +50,16 @@ moderating your eating, watchful(ness) and dwelling in solitude.
 need training, whereas those who are not withdrawn from sense objects (...) are
 very much identified with them. They don’t see their sense organ as an independent entity which basically has its own life, desires and needs, which they need to tame and control. Each time there is a pull from
 a sense object, then *they* are the ones that are pulled by sense objects. They don’t see anything in between.
+
+> When one knows and sees the eye as not-self, the underlying tendencies are uprooted. When one knows and sees forms
+as not-self, the underlying tendencies are uprooted. When one knows and sees like this, the underlying tendencies are uprooted. – SN 35.56
+
+You could as well translate it as: "as not mine". The idea of "self" that the Buddha radically rejects is the ownership of anything you regard as yourself, as coming from yourself or as belonging to yourself. He never speaks in abstract concepts, but always in practical ways, always looking at how X *relates* to Y, always taking the dependence into account, what is based on what, what results in what, what stems from what. 
+Practically speaking, by identifying yourself with anything that one usually identifies with and regards as himself, belonging to himself, coming from himself, you consider all of this to be *yours*. In this way identity automatically becomes or *is* ownership. 
+
+This buddhist rejection of self in the sense of the rejection of any kind of identity and ownership (of the body and mind), is no rejection and is not in conflict with the idea of the self in Vedanta, where body and mind are not confused with the self, but where as the self is regarded only that which remains when everything is taken away that one could own. 
+
+The Atman of the Vedanta is just the other side of the same coin of Buddhas Anatta, it includes the same rejection, the same overcoming, just looked at it like in an inverted image.
+
 
 
