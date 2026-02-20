@@ -25,7 +25,8 @@ devalued sensuality *forever*.
 
 ---
 
-[Discerning the body:]
+### Discerning the body
+
 > If you want to uproot the dependence on the pleasure of the sense objects, you have to uproot the dependence on the pleasure of this body: its agreeability and your assumption of ownership, which results from not seeing it peripherally as a thing which endures there on its own, with its own thirsts. This disowning of the body can only be done on the level
 of that correct peripheral recognition of what the body is. 
 
@@ -41,4 +42,8 @@ domain of the sense objects, and that’s where you need to recognize it.
 of the peripheral.
 
 > The less you engage with sense objects that are pulling you, the more the pressure that the body exerts over you will diminish, and the clearer you will see it on that level which is revealed through sense-restraint.
+
+> If you want to stop chasing sense pleasures, you need to start practising mindfulness of the body *correctly*. (...) Instead of watching the sensations of the body, recognize the *idea* (dhamma) of it, as a real thing existing concurrently to your direct attention. And you can only learn to see that idea correctly, if you have been sufficiently practising sense restraint, guarding the sense doors,
+moderating your eating, watchful(ness) and dwelling in solitude.
+
 
