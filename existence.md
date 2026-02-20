@@ -25,3 +25,8 @@ But when you would let them choose either to continue this eternal cycle or to s
 
 > Anigha: You have no choice but to loose your being. But to undergo that suffering, that loss of all that you have appropriated, it's just a question of whether you do it as a *practice*, that would then free you from that entirely, that you would not take things up again, or if you just keep gaining and loosing, gaining and loosing indefinitely.
 
+> Anigha: The fundamental appropriation is towards your own body, towards your own senses, towards your own feelings. That's the one that everything else goes out from.
+
+> Is there any tendency in me to try to protect what I *feel*?
+
+
