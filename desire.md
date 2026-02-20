@@ -1,5 +1,14 @@
 # Desire
 
+Forms of desire:
+* (Wholesome) Aspiring (???)
+* (Unwholesame) Craving (tanhā)
+
+Ajan Chah defines tanhā (craving) as
+> desires conditioned by ignorance of the way things are.
+
+
+
 > The eye delights in forms, takes delight in forms, rejoices in forms; the ear delights in sounds, takes delight in sounds, rejoices in sounds; the nose delights in odours, takes delight in odours, rejoices in odours; the
 tongue delights in flavours, takes delight in flavours, rejoices in flavours; the body delights in touches, takes delight in touches, rejoices in touches; the mind
 delights in ideas, takes delight in ideas, rejoices in ideas; (all) that has been
