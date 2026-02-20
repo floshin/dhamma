@@ -40,7 +40,12 @@ dependence on them will cease.
 * Why does a specific form that we see and consider to be beautiful invoke desire, e.g. to touch and to be intimate with it?
 * If we couldn't be able to see it, we couldn't delight in its sight, but we could still delight in its touch, in feeling the shape of the form, the smoothness of the skin, the smell, the taste and the idea of it; seeing it or not the form would manifest in our mind.
 
-* Why does this desire arise? 
+* Why does this desire arise?
+
+* A doctrine that holds any form of sensual desire or any act carried out on the basis of sensual desire (and e.g. considers it impossible to perform a sexual act without it) to be wrong, is thereby clearly an anti-natalist doctrine. We should have very good reason before making such a statement and hold such a view, before we recommend humanity to collectively stop procreation. → Thus, if there is any valuable reason for the desire to be, it shouldn't be condemned on principal reasons.
+ 
+* Is it only due to biological factors, that are driving us to reproduce? Or is there more to it?
+
 
 
 
