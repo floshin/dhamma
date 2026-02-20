@@ -23,5 +23,9 @@ devalued sensuality *forever*.
 > It doesn’t matter whether you’re a monk or a lay person: if you want to practice the Dhamma, practically speaking, most of the work comes down to drying your mind from sensuality, it doesn’t come down to finding the perfect technique or reading the exact sutta that will make you enlightened.
 > The reason why you’re not enlightened even after you have read all the Suttas, is not because you haven’t read them enough or you haven’t thought about them enough — it’s because your sticks are not dry enough and your views are not relinquished.
 
+---
 
+[Discerning the body:]
+> If you want to uproot the dependence on the pleasure of the sense objects, you have to uproot the dependence on the pleasure of this body: its agreeability and your assumption of ownership, which results from not seeing it peripherally as a thing which endures there on its own, with its own thirsts. This disowning of the body can only be done on the level
+of that correct peripheral recognition of what the body is. 
 
