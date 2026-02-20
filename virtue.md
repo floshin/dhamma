@@ -1,5 +1,16 @@
 # Virtue (Sila)
 
+Wikipedia:
+> The ancient Romans used the Latin word virtus (derived from vir, their word for man) to refer to all of the "excellent qualities of men, including physical strength, valorous conduct, and moral rectitude".
+
+What is virtuous is meant to be what is truly human. As virtue can only count what is specifically human and "humanizing"; that what distinguishes humans from other animals. 
+
+Therefore, virtues are qualities that only humans can fully develop. They are thus rooted in the ability to decide, in the ability to say no, to withstand, to discern, to act in difference or even opposition to natural inclinations that other animals must follow, while humans can choose to, in the ability to sacrifice. 
+
+--- 
+
+
+
 Morality:
 When Vinoba speaks of a "belief in absolute moral values", then this is about virtues such as truth, non-violence, kindness, compassion. 
 
