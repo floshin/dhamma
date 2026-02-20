@@ -1,5 +1,12 @@
 # Dhamma
 
+Sanskrit: Dharma
+
+How to define?
+1. Totality of (true) principles all depending on each other?
+2. Teaching of X (e.g. Buddha) assumed to be Nr. 1.
+3. Phenomena, Things, States, Factors, Qualities, short: Dependencies?
+
 > the Dhamma is apparent here-and-now, timeless, leading inwards, and to be experienced individually by the wise.
 
 > Buddha: ‘I cannot make anyone enlightened. I just point the way, and they either choose to follow my instruction or not.’
