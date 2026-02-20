@@ -1,5 +1,25 @@
 # Virtue (Sila)
 
+Morality:
+When Vinoba speaks of a "belief in absolute moral values", then this is about virtues such as truth, non-violence, kindness, compassion. 
+
+"Believing" in such virtues does not mean believing in some kind of abstract moral system, in an existence of some kind of things as they float around in space and have to be accepted in order to gain heaven or anything like that. 
+
+Believing in these values simply means valueing them. It means to consciously choose to value truth, non-violence, kindness, compassion, because one believes that they are valuable, very valuable, "absolutely" valuable. 
+
+In fact he believes that it is these values and these values alone that are absolutely valuable.
+
+Not money. Not fame. Not political power. Not economical power. Not (a)social influence. Not popularity. Not any kind of physical or mental belongings. 
+All of these are valueless, they have no value because they have no virtue, they are powerless in the spiritual domain, they are worth- and powerless in the Dhamma. 
+
+Only these absolute virtues are of un-conditional value and power. Therefore one should value them above all else, de-value everything that is opposed to them, try to live accordingly, to cultivate these virtues in oneself, to express these virtues in ones acts. 
+
+
+---
+
+
+
+
 Relevant terms:
 * Virtue
 * Contentment
@@ -9,6 +29,14 @@ Relevant terms:
 * endure (craving) and detach (from craving) (Ertrage und entsage)
 * caritta
 * varitta
+
+
+## Virtue
+
+
+
+
+
 
 
 > Anigha: Craving (for or against things) is like a dog pulling on a leash — the pull will not be perceivable to the extent that you run with it. Suffering is like a subtle yet very foul odor, easily masked by pleasant fragrances. This means that, though ordinary people certainly experience suffering and craving pretty much perpetually, they stand no chance of discerning them until they at least abandon the things that cover them up (ceasing to internally delight in those things too, not just externally stopping them).
