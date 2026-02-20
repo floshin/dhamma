@@ -1,7 +1,7 @@
 # Desire
 
 Forms of desire:
-* (Wholesome) Aspiring (???)
+* (Wholesome) Striving/Aspiring (???)
 * (Unwholesame) Craving (tanhā)
 
 Ajan Chah defines tanhā (craving) as
