@@ -12,3 +12,13 @@ This momentary relief that you feel when you fulfill any kind of desire, is not 
 
 * Desire that is fullfilled is nourished thereby and will always come back for more. And it will pressure you again and again, in a never-ending cycle. 
 
+* [include some aspects from the sense restraint why doc, then to this:]
+
+> Nyanamoli (paraphrased): The addiction is not uprooted because of the relationship
+between you and your body.
+
+
+
+
+
+
