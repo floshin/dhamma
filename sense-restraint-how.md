@@ -46,4 +46,9 @@ of the peripheral.
 > If you want to stop chasing sense pleasures, you need to start practising mindfulness of the body *correctly*. (...) Instead of watching the sensations of the body, recognize the *idea* (dhamma) of it, as a real thing existing concurrently to your direct attention. And you can only learn to see that idea correctly, if you have been sufficiently practising sense restraint, guarding the sense doors,
 moderating your eating, watchful(ness) and dwelling in solitude.
 
+> When you have been sufficiently withdrawn in this way, you can disown the pressure and pull of those individual organs and start to see them as five individual animals, like the simile that the Buddha gave in SN 35.247. You can genuinely see them as wild animals that
+need training, whereas those who are not withdrawn from sense objects (...) are
+very much identified with them. They don’t see their sense organ as an independent entity which basically has its own life, desires and needs, which they need to tame and control. Each time there is a pull from
+a sense object, then *they* are the ones that are pulled by sense objects. They don’t see anything in between.
+
 
