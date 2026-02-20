@@ -29,3 +29,16 @@ devalued sensuality *forever*.
 > If you want to uproot the dependence on the pleasure of the sense objects, you have to uproot the dependence on the pleasure of this body: its agreeability and your assumption of ownership, which results from not seeing it peripherally as a thing which endures there on its own, with its own thirsts. This disowning of the body can only be done on the level
 of that correct peripheral recognition of what the body is. 
 
+> It cannot be done on the level of observing the body with your senses; because then you are not actually observing the body, you are observing the sense objects which *require* the body.
+
+> An eye cannot see itself. (...) You need to discern the body not on the level of the senses, but on the level of the framework of the world of the sense objects, and that is what will fully purify the relationship between you and the ‘indirect’ body that appears peripherally while you are experiencing sense objects.
+
+> For as long as there are sense objects, the body, as the unity of the
+sense organs, is peripheral to that. It’s always the background to the
+domain of the sense objects, and that’s where you need to recognize it.
+
+> It’s about understanding the six-sense base, the body as that thing which is there, that needs to be tamed on that level
+of the peripheral.
+
+> The less you engage with sense objects that are pulling you, the more the pressure that the body exerts over you will diminish, and the clearer you will see it on that level which is revealed through sense-restraint.
+
