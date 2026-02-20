@@ -17,7 +17,9 @@ This momentary relief that you feel when you fulfill any kind of desire, is not 
 > Nyanamoli (paraphrased): The addiction is not uprooted because of the relationship
 between you and your body.
 
+> (...) your body and senses are (the) basis from which you are pressured.
 
+> Your dependence on the pleasures of the sense objects is determined by and dependent upon the pressure that your body exerts on your mind.
 
 
 
