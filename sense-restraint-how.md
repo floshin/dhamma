@@ -61,5 +61,26 @@ This buddhist rejection of self in the sense of the rejection of any kind of ide
 
 The Atman of the Vedanta is just the other side of the same coin of Buddhas Anatta, it includes the same rejection, the same overcoming, just looked at it like in an inverted image.
 
+---
+
+#### Right Order vs. perverted/wrong order
+
+
+> That is what is meant by ‘establishing the right order’: seeing what comes
+first and stays there as first: body on the level of the peripheral. Not losing
+that context, regardless of what else might happen with your attention.
+So whatever you are attending to, whatever pressure there is—desire for
+pleasure and so on—the order that is now determined by your knowledge
+does not change; you still see that peripheral body as the basis for all of
+this that is happening, and all you need to do is protect that order so that
+there is no room to become underlain by greed, aversion, and delusion,
+which is the perverted order.
+
+> Lust, aversion, and distraction will completely fade because they have not been maintained through the perversion of the order. That’s why it is said that ‘sensuality is a perversion of perception,’ i.e. putting the sense objects first and everything else measured through that as second; and not seeing the body peripherally, the necessary basis for sense organs, as that which is first (structurally speaking). 
+
+If in a buddhist context the words "right" and "wrong" are used, then never in a moralist sense, but always in a sense of real vs. unreal. Right is what is undistorted, revealed, uncovered, fully understood, right is actually seeing, understanding, perceiving reality as it is. Wrong is what is distorted, hidden, covered up; wrong is seeing, understanding, perceiving reality as it not actually is, taking it wrongly. There is no room for morality here. It is all about practice. 
+
+Either you see that the snake is actually a rope and thus see it rightly or you mistake the rope as a snake, which is wrong, which is a failure, not a moral failure, but simply a misunderstanding, a misconception etc.
+
 
 
