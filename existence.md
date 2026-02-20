@@ -23,3 +23,5 @@ But when you would let them choose either to continue this eternal cycle or to s
 
 > Anigha: You cannot go from existence to non-existence. The only thing you can do is *refine* the way you exist. 
 
+> Anigha: You have no choice but to loose your being. But to undergo that suffering, that loss of all that you have appropriated, it's just a question of whether you do it as a *practice*, that would then free you from that entirely, that you would not take things up again, or if you just keep gaining and loosing, gaining and loosing indefinitely.
+
