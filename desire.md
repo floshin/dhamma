@@ -55,8 +55,12 @@ dependence on them will cease.
  
 * Is it only due to biological factors, that are driving us to reproduce? Or is there more to it?
 
+---
 
-
+The fundamental questions for me:
+* Is is true that suffering is indeed rooted in desire? Is desire indeed inevitably leading to suffering?
+* Is the cessation of suffering and the liberation from suffering indeed the somehow necessary and highest goal and attainment or is there a different reason for existence that may give sense to all of this suffering and justifies to go through this cycle?
+* Is it true that it is impossible to do specific acts without unwholesome craving being involved? Why can specific actions never and under no circumstances be wholesome, like other actions (with a different mental attitude towards them) can be?
 
 
 
